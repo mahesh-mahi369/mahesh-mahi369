@@ -11,7 +11,7 @@
 - **Databases:** MySQL.
 
   # Fun fact About Me ⚡
-- I’m addicted to  watch cricket..
+- I’m addicted to  watch  and play cricket..
 - I love watching Animes .
 - I love travelling but still not trvaelled anywere.
 
